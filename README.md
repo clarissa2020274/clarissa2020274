@@ -1,4 +1,5 @@
-![Banner](https://github.com/user-attachments/assets/8dee0578-387a-42bf-9dcf-38deb47c0250)
+![Banner](https://github.com/user-attachments/assets/1e49702d-4e95-4f69-bd5f-22a6d71754ed)
+
 # 🙋🏻‍♀️ Introducing Myself
 
 ### 👋 Hi there, I'm Clarissa! 
